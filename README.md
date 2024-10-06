@@ -5,6 +5,3 @@ Key Note:
 
 Lesson: 
 
-
-Lesson 2:
-
